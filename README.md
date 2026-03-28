@@ -4,9 +4,9 @@
 
 <img width="666" height="375" alt="Untitled212_20260328011028" src="https://github.com/user-attachments/assets/29048496-0274-46ea-ba08-28830d957c31" />
 
-https://x.com/attrulysinner  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfollow
-
-https://kiokofshiu.straw.page ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsign.. 
+     https://x.com/attrulysinner  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfollow
+     ㅤㅤㅤㅤ︶︶︶ㅤㅤㅤㅤㅤㅤㅤㅤ◡◡
+     https://kiokofshiu.straw.page ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsign.. 
 
 <img width="666" height="375" alt="Untitled212_20260328010638" src="https://github.com/user-attachments/assets/5cb35931-72d9-419b-9ca6-ce5bbbd6ca6e" />
 
@@ -16,8 +16,23 @@ i can't      decorate    shit        sorry + on mobile
 
 ㅤㅤㅤㅤㅤㅤㅤㅤthey  /  them
 
-    ˙     .   ░         she  /  they   =   close
+   she  /  they   =   close
 
 
 
-                kay ㅤㅤㅤㅤㅤㅤㅤㅤniku
+                INFO (?) 
+                kay ㅤㅤ ㅤ\ㅤㅤㅤㅤㅤniku
+                ︶︶︶              ︶◡
+                🎂ㅤㅤㅤㅤ6/14ㅤㅤㅤㅤ•́︿•̀
+
+                
+                ◡◡    ✎ㅤㅤㅤㅤnon    binary
+                ㅤㅤㅤㅤㅤㅤㅤㅤ░░░░░░░░
+                ㅤㅤㅤㅤ
+                ㅤㅤㅤㅤ
+                discord: fermentdchees    ૮( ᵕ̩̩ - ᵕ̩̩ c)ა
+
+                ✧     ˙  .    ˙︴ main fandom : PHIGHTING! 
+
+                SUBLASER / HYPERSPACE #1 😳😳
+                ︶◡︶               ︶◡︶
