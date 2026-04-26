@@ -14,7 +14,7 @@
 
 <img width="666" height="375" alt="Untitled212_20260328010638" src="https://github.com/user-attachments/assets/5cb35931-72d9-419b-9ca6-ce5bbbd6ca6e" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝑠𝑢𝑏𝑠𝑝𝑎𝑐𝑒 𝑡𝑟𝑖𝑝𝑚𝑖𝑛𝑒 𝑛𝑜 2 𝑓𝑜𝑙𝑙𝑜𝑤𝑒𝑟
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 i can't      decorate    shit        sorry + on mobile
@@ -35,18 +35,14 @@ PRONOUNS
                 🎂ㅤㅤㅤㅤ6/14ㅤㅤㅤㅤ•́︿•̀
 
                 
-                ◡◡    ✎ㅤㅤㅤㅤnon    binary
+                ◡◡    ✎ㅤㅤㅤㅤidontknwo.. 
                 ㅤㅤㅤㅤㅤㅤㅤㅤ░░░░░░░░
                 ㅤㅤㅤㅤ
                 ㅤㅤㅤㅤ
-                discord: fermentdchees    ૮( ᵕ̩̩ - ᵕ̩̩ c)ა
+                discord: 1ntrnetㅤㅤㅤㅤ(lmk if you wanna add ok) 
 
                 ✧     ˙  .    ˙︴ main fandom : PHIGHTING! 
 
                 SUBLASER / HYPERSPACE #1 😳😳
                 ︶◡︶               ︶◡︶
 
-
-drrrawwwwwwwwww ok preview so i can get you all to be my friend
-
-<img width="2201" height="2201" alt="Untitled220_20260408010345" src="https://github.com/user-attachments/assets/4d7cfde2-b4e9-46d1-974f-a838ef622732" />
