@@ -46,5 +46,3 @@ PRONOUNS
                 SUBLASER / HYPERSPACE #1 😳😳
                 ︶◡︶               ︶◡︶
 
-free sharplow but bad
-<img width="2992" height="4000" alt="IMG_20260426_231143" src="https://github.com/user-attachments/assets/ac662779-80b0-43a8-8b30-d1615fc0f3e2" />
