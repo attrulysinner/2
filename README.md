@@ -5,7 +5,7 @@
    
    `ㅤ.ㅤ˙ㅤㅤㅤㅤ˚ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ▒▒▒   巛
 
-ㅤㅤㅤㅤbasic ㅤㅤㅤㅤㅤㅤㅤㅤinformation (?) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤinformations (?) 
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
 <img width="666" height="375" alt="Untitled212_20260328011028" src="https://github.com/user-attachments/assets/29048496-0274-46ea-ba08-28830d957c31" />
@@ -34,16 +34,26 @@ PRONOUNS
                 🎂ㅤㅤㅤㅤ6/14ㅤㅤㅤㅤ•́︿•̀
 
                 
-                ◡◡    ✎ㅤㅤㅤㅤidontknwo.. 
+                ◡◡    ✎ㅤㅤㅤtake a note that i'm aㅤㅤ.. 
+                ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤminor
                 ㅤㅤㅤㅤㅤㅤㅤㅤ░░░░░░░░
+                 ㅤㅤㅤㅤ︶︶ㅤㅤENFJ
+
+                 hi i'm shy at first.. but once i'm comfortable with you i won't be a
+                 shy chud anymore 🥺tru 😭st
                 ㅤㅤㅤㅤ
+                I'll add more info if i remember
                 ㅤㅤㅤㅤ
                 discord: 1ntrnetㅤㅤㅤㅤ(lmk if you wanna add ok) 
 
-                ✧     ˙  .    ˙︴ main fandom : PHIGHTING! , mcyt(?) 
+                ✧     ˙  .    ˙︴ main fandom : minecraft.. stuff.. 
                
-                
+                 
 
-                SUBLASER / HYPERSPACE #1 😳😳
+                SUBLASER / HYPERSPACE #1 glazer.. and sharplow ig
                 ︶◡︶               ︶◡︶
 
+
+Phandom maybe..some of them are really corny i know... 
+
+<img width="1080" height="1993" alt="IMG_20260505_195934" src="https://github.com/user-attachments/assets/ee8eaecd-3243-4555-9388-2015d9ff9912" />
