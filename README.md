@@ -57,3 +57,5 @@ PRONOUNS
 Phandom maybe..some of them are really corny i know... 
 
 <img width="1080" height="1993" alt="IMG_20260505_195934" src="https://github.com/user-attachments/assets/ee8eaecd-3243-4555-9388-2015d9ff9912" />
+
+![gif](./content://media/external/downloads/36523) 
