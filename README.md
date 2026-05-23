@@ -44,7 +44,7 @@ PRONOUNS
                 ㅤㅤㅤㅤ
                 I'll add more info if i remember
                 ㅤㅤㅤㅤ
-                discord: 1ntrnetㅤㅤㅤㅤ(lmk if you wanna add ok) 
+                discord: nikushimi39nikuㅤㅤㅤㅤ(lmk if you wanna add ok) 
 
                 ✧     ˙  .    ˙︴ main fandom : minecraft.. stuff.. 
                
