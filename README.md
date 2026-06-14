@@ -23,10 +23,6 @@ i can'tㅤㅤㅤㅤdecorateㅤㅤㅤshitㅤㅤㅤㅤsorry🥺
 
 ㅤㅤㅤㅤ︶︶︶
 
-PRONOUNS
-
-ㅤㅤㅤㅤㅤㅤㅤㅤthey/them. though if you called me by she it's okay i thinkkkk
-
 
         ➥        INFO (?) 
                 kay ㅤㅤ ㅤ\ㅤㅤㅤㅤㅤniku
